@@ -14,4 +14,4 @@
 - умение работать в команде
 - умение и желание учиться чему-то новому
 
-![](https://vk.com/orenxerox?z=photo116646793_457240454%2Fphoto_feed116646793)
+![](https://banner2.cleanpng.com/20181115/uei/kisspng-computer-icons-user-clip-art-portable-network-grap-rse-ampquotetc-cec-rkampquot-5bed73aa1f3005.4247395715422882981278.jpg)
